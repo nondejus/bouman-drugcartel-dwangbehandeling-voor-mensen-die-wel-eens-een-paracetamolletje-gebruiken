@@ -1,1 +1,1 @@
-# bouman-drugcartel-dwangbehandeling-voor-mensen-die-well-eens-een-paracetamolletje-gebruiken
+# bouman-drugcartel-dwangbehandeling-voor-mensen-die-wel-eens-een-paracetamolletje-gebruiken
